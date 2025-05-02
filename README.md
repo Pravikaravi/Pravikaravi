@@ -8,6 +8,8 @@
 
 📫 You can reach me via email at iampravika@gmail.com or through my GitHub profile.
 
+ℹ️ Linkedin =>>>> www.linkedin.com/in/pravika-ravi-34a55b246
+
 😄 Pronouns: She/Her.
 
 ⚡ Fun fact: I can solve a Rubik's Cube in under a minute!
